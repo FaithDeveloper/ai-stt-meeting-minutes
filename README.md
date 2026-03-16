@@ -1,0 +1,1 @@
+# stt-meeting-minutes
